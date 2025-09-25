@@ -101,7 +101,7 @@ Here are some ideas to get you started:
 |《Kate老师精精解走遍美国》(上下册)  发音词汇连读听力口语全面提升| <img src="https://mmecoa.qpic.cn/mmecoa_jpg/iaSSPqxcbRHO83ibAibCB692om0FjdKLFG3VMofib3C4PvR7CDyYlOQC0rmcpM5HKPoUkmzVISDZYDoQiaxPcG0cDvQ/640?wx_fmt=jpeg&amp;from=appmsg" style="width: 100px;"> |<img src="https://mmecoa.qpic.cn/mmecoa_png/iaSSPqxcbRHO83ibAibCB692om0FjdKLFG34b5ObRkeibavia28NkDqbgPzuHOcHlq5aEmsepmib5WNnpgP8ZhicxiarMg/640?wx_fmt=png&amp;from=appmsg" style="width: 100px;"> |
 
 
-## 课程质量保证
+## ***课程质量保证***
 
 - [x] 七天无理由退课（课程没有学习超过30分钟）
 - [x] 客服支持，通过公众号或者视频号私信留言，留言必复
